@@ -1,6 +1,6 @@
 # To an unread poet
-### David Lessard
-![image](https://upload.wikimedia.org/wikipedia/commons/d/d6/St.-Jerome-In-His-Study.jpg)
+### [David Lessard](https://hellopoetry.com/david-lessard)
+![image](https://upload.wikimedia.org/wikipedia/commons/d/d6/St.-Jerome-In-His-Study.jpg)<br />
 I used to read your poems
 but lately you don't write
 you're silent and aloof
